@@ -22,8 +22,11 @@ Here are some ideas to get you started:
 
 ### 기본 정보
 1995.10.25
+
 오산시 거주
+
 여자
+
 INFP
 
 ### 연락처
